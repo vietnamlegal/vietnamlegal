@@ -1,16 +1,13 @@
-### Hi there 👋
+### Vietnam Legal
 
-<!--
-**vietnamlegal/vietnamlegal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+VietNam Legal là đơn vị hoạt động tư vấn pháp luật, dịch vụ pháp lý, sở hữu trí tuệ, dịch vụ kế toán thuế, dịch thuật công chứng đã khẳng định được uy tín, tín nhiệm, niềm tin của khách hàng trong và ngoài nước về dịch vụ tư vấn pháp luật doanh nghiệp, sở hữu trí tuệ, kinh doanh, thương mại, đầu tư, lao động, pháp luật thuế, dịch vụ kế toán thuế, giải quyết tranh chấp thương mại trong nước và quốc tế
 
-Here are some ideas to get you started:
+- Hà Nội: Số 14, Ngõ 104 Định Công, Phường Phương Liệt, Quận Thanh Xuân, Hà Nội
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- TPHCM: Căn Số 6, Đường Số 4, cityland garden hills, Phường 5, Gò Vấp, Thành phố Hồ Chí Minh
+
+https://vietnamlegal.com.vn/
+
+https://vietnamlegal22.tumblr.com/
+
+https://vietnamlegal22.wordpress.com/
